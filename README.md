@@ -1,0 +1,1 @@
+filosofi tubes ini adalah saya suka terlambat dikarenakan lampu lalu lintas. jangan ngelek tuh saat udah hijau pas giliran kita maju langsung merah nya diem lagi nunggu lagi lama jadi terciptalah tubes ini seprti itu hehehe
